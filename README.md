@@ -1,0 +1,1 @@
+# hf12046-osaka-trip
